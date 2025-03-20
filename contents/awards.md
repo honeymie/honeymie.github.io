@@ -1,13 +1,8 @@
-- National Scholarship of Graduate Student, 2024.
+- First-class Scholarship twice and the Second-Class Scholarship once.
 
-- First-prize Scholarship of CUMT, 2024.
+- Honored as an Outstanding Student
 
-- First-prize Scholarship of CUMT, 2023.
+- Attended Zhang Yixing's "Grand Line" concert in Chongqing and Chengdu
 
-- Freshman Scholarship of CUMT, 2022.
+- Participated in the promotional tour of Zhang Yixing's movie "no more bets", which achieved a box office of 3.848 bilion yuan.
 
-- Excellent Graduation Project of Jiangsu Province, 2022.
-
-- First-prize Enterprise Scholarship of CUMT, 2020.
-
-- First-prize Scholarship of CUMT, 2019.
