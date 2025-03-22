@@ -1,6 +1,5 @@
 
 
-[![senli1073](https://img.shields.io/badge/senli1073-github-blue?logo=github)](https://github.com/senli1073)
 
 She is currently pursuing a Master's Degree in Environmental Engineering, at School of Huazhong Agricultural University, China .She really likes Chiikawa animation,especially a little rabbit named Usagi in it. She also enjoys playing badminton and table tennis.
 
