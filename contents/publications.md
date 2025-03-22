@@ -8,4 +8,4 @@
 
 - <strong>Song Gao</strong>, Lay Zhang*.How Can I Make the Kitten Act Affectionately Toward Me?.2025_.[J]Nothing. 2022, 10(07): 45-59.
 
-- <strong>Fazhen Shi</strong>, Banfa Zhang, Kejin Shi* . How to Sleep While Playing Badminton?.2024_.[J]Slience. 2025, 38(15): 80-90.
+- <strong>Song Gao</strong>, Banfa Zhang. How to Sleep While Playing Badminton?.2024_.[J]Slience. 2025, 38(15): 80-90.
